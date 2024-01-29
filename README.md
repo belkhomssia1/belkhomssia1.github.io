@@ -1,1 +1,0 @@
-# belkhomssia1.github.io
